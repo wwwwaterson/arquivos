@@ -116,3 +116,109 @@
 ## **02:26 PM, Sáb**
 - [**Ronnyery Barbosa de Sousa**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572644)  
   - Categoria: **AZUL / Master 1 / Masculino / Médio (82,30kg)**
+
+Claro! Continuando a lista:
+
+## **02:29 PM, Sáb**
+- [**Anderson Miranda Gonçalves**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572649)  
+  - Categoria: **AZUL / Master 1 / Masculino / Meio-Pesado (88,30kg)**
+
+## **02:50 PM, Sáb**
+- [**Roberta Aleixo Villodre**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572820)  
+  - Categoria: **ROXA / Master 3 / Feminino / Meio-Pesado (74,00kg)**
+
+## **02:55 PM, Sáb**
+- [**Tiago Agustinho Borges**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572829)  
+  - Categoria: **AZUL / Master 3 / Masculino / Super Pesado (100,50kg)**
+
+## **03:00 PM, Sáb**
+- [**Régis Eric Maia Barros**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572906)  
+  - Categoria: **MARROM / Master 4 / Masculino / Meio-Pesado (88,30kg)**
+
+- [**Anderson Magalhães Corrêa**](https://www.bjjcompsystem.com/tournaments/2657/single_competitors)  
+  - Categoria: **MARROM / Master 4 / Masculino / Pesado (94,30kg)**
+
+## **03:04 PM, Sáb**
+- [**Alexandre Queiroz Soares**](https://www.bjjcompsystem.com/tournaments/2657/single_competitors)  
+  - Categoria: **AZUL / Master 4 / Masculino / Pluma (64,00kg)**
+
+## **03:08 PM, Sáb**
+- [**Celio Henrique de Queiroz Costa**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572920)  
+  - Categoria: **ROXA / Master 4 / Masculino / Pesadíssimo**
+
+## **03:11 PM, Sáb**
+- [**Jorge Manuel Quercia Neves**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572660)  
+  - Categoria: **ROXA / Master 1 / Masculino / Super Pesado (100,50kg)**
+
+## **03:15 PM, Sáb**
+- [**Daniel Brito da Silva**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572546)  
+  - Categoria: **MARROM / Master 1 / Masculino / Pena (70,00kg)**
+
+## **03:17 PM, Sáb**
+- [**Veneranda Francisca Lobato da Cruz**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572730)  
+  - Categoria: **ROXA / Master 2 / Feminino / Médio (69,00kg)**
+
+## **03:19 PM, Sáb**
+- [**Roberta Aleixo Villodre**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572820)  
+  - Categoria: **ROXA / Master 3 / Feminino / Meio-Pesado (74,00kg)**
+
+## **03:20 PM, Sáb**
+- [**Victor Manuel Zerefos de Oliveira**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572910)  
+  - Categoria: **ROXA / Master 4 / Masculino / Pesado (94,30kg)**
+
+## **03:25 PM, Sáb**
+- [**Daniel de Jesus Amaral**](https://www.bjjcompsystem.com/tournaments/2657/single_competitors)  
+  - Categoria: **MARROM / Master 2 / Masculino / Pesadíssimo**
+
+## **03:28 PM, Sáb**
+- [**Raphael Paz Esteves Almeida Campos**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572746)  
+  - Categoria: **MARROM / Master 2 / Masculino / Super Pesado (100,50kg)**
+
+## **03:33 PM, Sáb**
+- [**Gabriel Moreira Assis de Oliveira**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572656)  
+  - Categoria: **MARROM / Master 1 / Masculino / Pesado (94,30kg)**
+
+## **03:34 PM, Sáb**
+- [**Régis Eric Maia Barros**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572906)  
+  - Categoria: **MARROM / Master 4 / Masculino / Meio-Pesado (88,30kg)**
+
+- [**Anderson Magalhães Corrêa**](https://www.bjjcompsystem.com/tournaments/2657/single_competitors)  
+  - Categoria: **MARROM / Master 4 / Masculino / Pesado (94,30kg)**
+
+## **03:39 PM, Sáb**
+- [**Guilherme de Oliveira Ramos**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572543)  
+  - Categoria: **BRANCA / Adulto / Masculino / Pluma (64,00kg)**
+
+## **03:41 PM, Sáb**
+- [**Leonardo Loiola Silva Nobre**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572563)  
+  - Categoria: **BRANCA / Adulto / Masculino / Meio-Pesado (88,30kg)**
+
+## **03:47 PM, Sáb**
+- [**Carlos Henrique Barroso de Oliveira**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572832)  
+  - Categoria: **MARROM / Master 3 / Masculino / Super Pesado (100,50kg)**
+
+- [**Wenderson Bruno Barbosa Matos**](https://www.bjjcompsystem.com/tournaments/2657/single_competitors)  
+  - Categoria: **MARROM / Master 3 / Masculino / Pesadíssimo**
+
+## **03:48 PM, Sáb**
+- [**Marcos Vinicius Alves dos Santos**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572658)  
+  - Categoria: **BRANCA / Master 1 / Masculino / Super Pesado (100,50kg)**
+
+## **03:53 PM, Sáb**
+- [**Elielton Lobato Muniz**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572821)  
+  - Categoria: **MARROM / Master 3 / Masculino / Meio-Pesado (88,30kg)**
+
+## **04:01 PM, Sáb**
+- [**Laura Cabral da Silva**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572553)  
+  - Categoria: **BRANCA / Adulto / Feminino / Leve (64,00kg)**
+
+- [**Uaquiany Francisco Oliveira**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572553)  
+  - Categoria: **BRANCA / Adulto / Feminino / Leve (64,00kg)**
+
+## **04:08 PM, Sáb**
+- [**Edivaldo Pereira do Nascimento**](https://www.bjjcompsystem.com/tournaments/2657/categories/2572728)  
+  - Categoria: **BRANCA / Master 2 / Masculino / Médio (82,30kg)**
+
+
+
+  
