@@ -259,7 +259,7 @@ This project is licensed under the MIT License. See the [LICENSE](LICENSE) file 
 
 **Anderson Magalhães**
 
-- LinkedIn: [Anderson Magalhães](www.linkedin.com/in/andersonmagalhaes-fullstack)
+- LinkedIn: [Anderson Magalhães](https://www.linkedin.com/in/andersonmagalhaes-fullstack)
 - GitHub: [@wwwwaterson](https://github.com/wwwwaterson)
 - Expertise: AI Engineer | Full Stack Developer & LLM Integration
 
